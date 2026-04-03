@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **abdulkuddusimarov@gmail.com**
 
-- 📄 Know about my experiences [t.ly/VoOWY](t.ly/VoOWY)
+- 📄 Know about my experiences [t.ly/VoOWY](https:/t.ly/VoOWY)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
